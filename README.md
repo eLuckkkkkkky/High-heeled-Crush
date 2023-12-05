@@ -1,4 +1,4 @@
-# Overview of High-heeled-Crush
+# Overview of Privacy Policy
 
 High-heeled-Crush, through its website and mobile app (together referred to as the "Platform"), operated by eLuckkkkkkky Store, is committed to protecting your privacy. This policy outlines how we manage Personal Information both on the Platform and in offline interactions. It forms a fundamental part of our Terms and Conditions, influencing how you use the Platform and our approach to data management. We encourage a thorough review of this document along with specific sections of the Terms and Conditions, especially those related to social media and legal considerations. Any modifications to this policy will be updated with the respective revision dates. Should you disagree with any changes, please contact us as indicated in the policy. Your continued usage of High-heeled-Crush's services signifies agreement with the current High-heeled-Crush. We prioritize your privacy, ensuring a secure environment and exclusive use of your information to improve your experience while respecting your privacy preferences.
 
